@@ -1,11 +1,18 @@
 <html>
-<p align="center"><i>My lady has spoken, "Ga1ahad you shall never collapse."</i>
+<p align="center">
+<i>
+My lady has spoken, "Ga1ahad you shall never collapse."
+</i>
 <br>
 <br> ⟡
 <br>
-<br>mili fan ,  (*´▽｀)v ﹒・ ⟡
+<br>
+mili fan , will mostly be found cosplaying as the characters from their song artworks. (*´▽｀)v ﹒・ ⟡
 <br>
 <br> ⟡
 <br>
-<br> atabook soon lmao</p>
+<br>
+int freely.
+
+</p>
 </html>
