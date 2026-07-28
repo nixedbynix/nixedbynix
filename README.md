@@ -1,9 +1,9 @@
 <html>
 <p align="center">
 
-<i>
+<i><b>
 My lady has spoken, "Ga1ahad you shall never collapse."
-</i>
+</i></b>
 <br>
 <br> ⟡
 <br>
@@ -11,9 +11,5 @@ My lady has spoken, "Ga1ahad you shall never collapse."
 mili fan , will mostly be found cosplaying as the characters from their song artworks. (*´▽｀)v ﹒・ ⟡
 <br>
 <br> ⟡
-<br>
-<br>
-c*h freely unless stated otherwise, this account is mainly used for PonyTown purposes but will code here if i want to practice.
-
 </p>
 </html>
