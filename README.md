@@ -13,7 +13,7 @@ mili fan , will mostly be found cosplaying as the characters from their song art
 <br> ⟡
 <br>
 <br>
-int freely.
+c*h freely unless stated otherwise, this account is mainly used for PonyTown purposes but will code here if i want to practice.
 
 </p>
 </html>
