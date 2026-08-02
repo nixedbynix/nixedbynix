@@ -7,11 +7,11 @@ My lady has spoken, "Ga1ahad you shall never collapse."
 <br> ⟡
 <br>
 <br>
-mili fan , will mostly be found cosplaying as the characters from their song artworks. (*´▽｀)v ﹒・ ⟡
+dniuid / uf
 <br>
 <br> ⟡
 <br>
 <br>
-dude there's nothing to put here, will probably be reworked the code is A MESS
+code will bw reworked
 </p>
 </html>
