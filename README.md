@@ -12,6 +12,6 @@ dniuid / uf
 <br> ⟡
 <br>
 <br>
-code will bw reworked
+code will be reworked
 </p>
 </html>
