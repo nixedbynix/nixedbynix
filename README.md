@@ -4,5 +4,4 @@
 <p>⁞⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<i>⁂⠀⌎⠀⠀<a href="https://nixedbynix.atabook.org">atabook</a></i></p>
   <br>
 <p>        </p>
-  <hr>
 </html>
